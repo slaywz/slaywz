@@ -1,2 +1,5 @@
-Varvalian (Aristia Edit)
-![68747470733a2f2f6f73752e7070792e73682f73732f31373539393732312f34353236](https://user-images.githubusercontent.com/95938630/170868885-ce808642-be0d-4008-a3aa-9cb354b91d86.jpg)
+# [ Varvalian (Aristia Edit) ](https://www.dropbox.com/s/48dcytp0ed32tyu/Varv.osk?dl=0)
+![](https://osu.ppy.sh/ss/17599721/4526)
+
+# [《CK》 Bacon boi 1.0 『blue』](https://mega.nz/file/jXpniCZD#mv6NjV1NT-VZvF84efqRgjDs_hRrQYUA-IG-2PpdG20)
+![](https://i.imgur.com/8OdVMSD.png)
