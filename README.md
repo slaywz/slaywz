@@ -3,3 +3,6 @@
 
 # [《CK》 Bacon boi 1.0 『blue』](https://mega.nz/file/jXpniCZD#mv6NjV1NT-VZvF84efqRgjDs_hRrQYUA-IG-2PpdG20)
 ![](https://i.imgur.com/8OdVMSD.png)
+
+[ _Shield Skin ](https://drive.google.com/file/d/1lluh-sODyZjd4Ii67ZkDozR98omxOair/view)
+![](https://i.imgur.com/0CbmuOJ.jpg)
