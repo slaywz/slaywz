@@ -11,4 +11,4 @@
 ![](https://i.imgur.com/CpHxqOJ.png)
 
 # [Chiv x yorushika](https://drive.google.com/file/d/1Gg3tsTaKJLDLiTPaEeOILjlcmxmz18AS/view)
-![](https://us.123rf.com/450wm/yehorlisnyi/yehorlisnyi2104/yehorlisnyi210400016/167492439-pas-d-ic%C3%B4ne-de-photo-ou-d-image-vierge-chargement-d-images-ou-marque-d-image-manquante-image-non-dis.jpg?ver=6](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6c/No_image_3x4.svg/1280px-No_image_3x4.svg.png)
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6c/No_image_3x4.svg/1280px-No_image_3x4.svg.png)
