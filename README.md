@@ -13,11 +13,10 @@
 # [ Rohulk.5.0b](https://umbre.live/rohulk-1)
 ![](https://skins.osuck.net/uploads/posts/2019-05/1559304264_screenshot4866.jpg)
 
-# [Chiv x yorushika](https://drive.google.com/file/d/1Gg3tsTaKJLDLiTPaEeOILjlcmxmz18AS/view)
-![](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6c/No_image_3x4.svg/1280px-No_image_3x4.svg.png)
-
 # [- ddddd orginal -](https://snowy.s-ul.eu/tDytFd3j) 
 ![](https://osu.ppy.sh/ss/12697821)
 
 # [- dddddv2 -](https://mega.nz/file/JGgQwTqB#KPl0hAYEWxrTc0ZayUpjx9OCG3QRn6z3OknbOGBnHqM) 
 ![](https://osu.ppy.sh/ss/11860986)
+
+
