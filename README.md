@@ -19,4 +19,7 @@
 # [- dddddv2 -](https://mega.nz/file/JGgQwTqB#KPl0hAYEWxrTc0ZayUpjx9OCG3QRn6z3OknbOGBnHqM) 
 ![](https://osu.ppy.sh/ss/11860986)
 
+# [vaxei nomod](https://joofixd.s-ul.eu/zStMTKdG)
+![](https://osu.ppy.sh/ss/13422009/065e)
+
 
